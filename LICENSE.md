@@ -1,4 +1,4 @@
-# 
+# Personalizado NordVPN plugins para Mac OS | Mejor NordVPN plugins para PC Windows. Con bóveda cifrada y ofuscación — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
